@@ -14,6 +14,6 @@ Currently CTO at Secret Source Technology SL
 - [LinkedIn (but only out of obligation)](https://www.linkedin.com/in/tedmasterweb/)
 - [Secret Source Technology SL](https://www.secret-source.eu/team/ted/)
 - [ccMixter](http://beta.ccmixter.org/people/tedmasterweb/playlists)
-- [Freesound (I have a fascination with sound effects]()
+- [Freesound (I have a fascination with sound effects)](https://freesound.org/people/tedmasterweb/)
 - [Youtube](https://www.youtube.com/channel/UCR8QB8xhH5SNKQJBN2yB5dg)
 - [IMDB (I've been in a couple of films…)](https://www.imdb.com/name/nm11052406/)
